@@ -1,0 +1,1 @@
+🏵 · ¡Hola! Soy Disam, desarrollador de software, estoy aprendiendo los lenguajes HTML5, CSS y JavaScript a parte de la librería discord.js, me gusta mucho aprender cosas nuevas, dibujar, hacer lettering y programar
